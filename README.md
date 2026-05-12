@@ -1,1 +1,0 @@
-# tate3.github.io
